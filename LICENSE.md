@@ -1,4 +1,4 @@
-#  
+#  Experience plants vs brainrots like never before with plants vs brainrots Script best, the #1 Script. Includes no cooldown and auto-farm for
 
 
 
